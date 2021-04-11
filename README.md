@@ -2,7 +2,7 @@
 
 Meu nome é Luiz Carlos. Trabalho com análise e desenvolvimento de sistemas corporativos desde 2016.
 
-No meu tempo livre, gosto de tocar um violão(🎵), apreciar uma cerveja(🍺) e assistir filmes(🎞️).
+No meu tempo livre, gosto de trabalhar nos meus projetos pessoais, tocar um violão(🎵), apreciar uma cerveja(🍺) e assistir filmes(🎞️).
 
 Quer conhecer mais meu histórico profissional ?
 
