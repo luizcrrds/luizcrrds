@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Meu nome é Luiz Carlos. Trabalho com análise e desenvolvimento de sistemas corporativos desde 2016.
+Meu nome é Luiz Carlos. Trabalho com desenvolvimento de sistemas corporativos.
 
 No meu tempo livre, gosto de trabalhar nos meus projetos pessoais, tentar tocar algum instrumento musical(🎵), apreciar uma cerveja(🍺) e assistir filmes(🎞️).
 
