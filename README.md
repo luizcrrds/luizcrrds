@@ -2,7 +2,7 @@
 
 Meu nome é Luiz Carlos. Trabalho com desenvolvimento de sistemas corporativos.
 
-No meu tempo livre, gosto de trabalhar nos meus projetos pessoais, tentar tocar algum instrumento musical(🎵), apreciar uma cerveja(🍺) e assistir filmes(🎞️).
+No meu tempo livre, gosto de trabalhar nos meus projetos pessoais, estar com a minha família, tentar tocar algum instrumento musical(🎵) e assistir filmes(🎞️).
 
 Quer conhecer mais meu histórico profissional ?
 
